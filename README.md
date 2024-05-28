@@ -3,5 +3,5 @@ estou estudando na alura
 estou me desenvolvendo na linguagem javaScript
 utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos
 
-voc~e pode em contato comigo📭
+você pode em contato comigo📭
 00001088649002sp@ql.educacao.sp.gov.br
